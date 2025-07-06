@@ -1,7 +1,6 @@
 🤗💖 BIENVENIDO AL MUNDO OTAKU 💖🤗
 
-img src="https://thumbs.gfycat.com/DeafeningFragrantGraywolf.webp" width="480px">
- <P align="center">
+img src="https://c.tenor.com/lIpoEgfZuxkAAAAd/tenor.gif">
 
 <!---
 Nya12G/Nya12G is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
